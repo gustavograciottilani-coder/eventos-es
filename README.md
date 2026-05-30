@@ -29,4 +29,14 @@ Fevereiro:
 Março:
 * 4: [2° Seminário Café Conilon](https://www.instagram.com/p/DUGNw8zEZWs/) - *Jaguaré/ES*
 * 6,7: [3ª Feira da Mulher Empreendedora do ES](https://www.instagram.com/feiradamulherempreendedoradoes/) - *Cariacica, Guarapari, Serra, Viana, Vila Velha, Vitória/ES*
+* 7: [4º Agro Delas Jaguaré](https://www.instagram.com/p/DUntMImgBQj/) - *Jaguaré/ES*
+* 8: [Corrida da Mulher](https://www.instagram.com/p/DSatzIOjRLB/) - *Cachoeiro de Itapemirim/ES*
+* 13,14,15: [Nostra Cultura](https://www.instagram.com/nostraculturafestival/) - *Santa Teresa/ES* 
+* 18,19,20,21,22: [34° Expo Jaqueira 2026](https://www.instagram.com/p/DS5rT3nCQ0b/) - *Presidente Kennedy/ES*
+* 22: [4ª Descida Ecológica no Rio Barra Seca](https://www.jaguare.es.gov.br/noticia/ler/1785/4a-descida-ecologica-do-rio-barra-seca-e-marcada-por-grande-participacao-em-jaguare) - *Jaguaré/ES*
+* 22: [Maratona de Ciclismo na Terra do Rei](https://www.instagram.com/p/DLxiFjvBNq8/) - *Cachoeiro de Itapemirim/ES*
+* 28,29: [Circuito Esportivo](https://esportecorrida.com.br/v3/evento.php?evt=2300) - *Afonso Cláudio/ES*
+
+Abril: 
+* 2,3,4,5: [Iriri Paixão Capixaba](https://rotacapixaba.com/12-iriri-paixao-capixaba-2026/) - *Anchieta/ES*
 * 
